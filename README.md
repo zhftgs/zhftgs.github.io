@@ -1,1 +1,2 @@
-# zhftgs.github.io
+# 域名(zhftgs.cn)合作出售
+联系人：苏先生	电话：13395313987
